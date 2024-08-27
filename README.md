@@ -18,15 +18,10 @@ Foço aniversario dia 8 do 11
 ### você entra em contato comigo
 @dudamassuia( instagram)
 
-
-![](https://media.tenor.com/9Get-BFsdfAAAAAM/spongebob-spongebob-meme.gif)
-
-
-
-
 ![](https://editor.p5js.org/DudaMassuia/sketches/eJ9HT417h)
 
 
+![](https://media.tenor.com/9Get-BFsdfAAAAAM/spongebob-spongebob-meme.gif)
 
 
 -->
