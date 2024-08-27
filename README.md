@@ -17,7 +17,7 @@ Foço aniversario dia 8 do 11
 
 ### você entra em contato comigo
 @dudamassuia( instagram)
-
+¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨¨
 ![](https://editor.p5js.org/DudaMassuia/sketches/eJ9HT417h)
 
 
